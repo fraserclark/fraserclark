@@ -1,1 +1,1 @@
-A freelance developer from Edinburgh
+A software and web developer from Edinburgh
